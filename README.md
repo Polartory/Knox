@@ -4,7 +4,7 @@ also if you need any help dm me on dis at polarsynnx and you can tell me things 
 
 PEOPLE WHO HELPED
 --------------------------------------
-relevant500 for helping with whitelist
+relevant500 for helping with whitelist and other things huge thx to rel
 boostifyoffical for ideas
 xylex for some scripts
 ew_qwertyui for deob

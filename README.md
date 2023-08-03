@@ -9,3 +9,4 @@ boostifyoffical for ideas and for most assets huge W
 xylex for some scripts
 ew_qwertyui for deob
 haydenzz. for free accounts with kits
+also rip snoopy bro got doxxed

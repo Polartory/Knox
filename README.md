@@ -10,3 +10,4 @@ xylex for some scripts
 ew_qwertyui for deob
 haydenzz. for free accounts with kits
 also rip snoopy bro got doxxed
+and star for some packs

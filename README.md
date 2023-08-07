@@ -6,8 +6,5 @@ PEOPLE WHO HELPED
 --------------------------------------
 relevant500 for helping with whitelist and other things huge thx to rel
 boostifyoffical for ideas and for most assets huge W
-xylex for some scripts
-ew_qwertyui for deob
-haydenzz. for free accounts with kits
-also rip snoopy bro got doxxed
+ew_qwertyui for few scripts
 and star for some packs

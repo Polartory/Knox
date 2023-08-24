@@ -4,7 +4,7 @@ also if you need any help dm me on dis at polarsynnx and you can tell me things 
 
 PEOPLE WHO HELPED
 --------------------------------------
-relevant500 for helping with whitelist and other things huge thx to rel
-boostifyoffical for ideas and for most assets huge W
-ew_qwertyui for few scripts
-and star for some packs
+relevant for helping with scripts
+atzi for helping with cape, logo ect
+star for packs
+and a few others

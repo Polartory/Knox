@@ -1,6 +1,32 @@
-Knox public is out but will not be updated for a long time bc things have happend
-and if you find this before public is out then you cant use knox private unless you have a deob bc there is a whitelist          
-also if you need any help dm me on dis at polarsynnx and you can tell me things to fix there to
+Knox Public has:
+Disabler
+about no lag backs
+cool cape
+cool logo
+has updates
+a lot of misc things
+a few texture packs
+3 skys
+bed tp
+player tp
+clan tags
+vape user finder
+
+Knox Private has:
+Disabler
+no lag backs
+cool cape
+cool logo
+updates
+a lot of misc
+8 texture packs
+5 skys
+3 bedtps
+2 player tps
+clan tags
+2 vape user finder
+host panel
+and more
 
 PEOPLE WHO HELPED
 --------------------------------------

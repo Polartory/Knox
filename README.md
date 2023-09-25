@@ -33,5 +33,4 @@ PEOPLE WHO HELPED
 relevant for helping with scripts
 atzi for helping with cape, logo ect
 star for packs
-and black for zephry account
 and a few others
